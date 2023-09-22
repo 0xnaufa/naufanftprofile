@@ -1,1 +1,1 @@
-# naufa nft profiles piictures
+# naufa nft profiles piicture
